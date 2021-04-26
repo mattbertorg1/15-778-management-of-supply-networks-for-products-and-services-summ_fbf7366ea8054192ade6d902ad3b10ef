@@ -1,0 +1,1 @@
+# 15-778-management-of-supply-networks-for-products-and-services-summ_fbf7366ea8054192ade6d902ad3b10ef
